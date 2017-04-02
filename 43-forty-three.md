@@ -15,11 +15,10 @@ Are understood by very few.
 
 The soft/hard duality and image of substancelessness have obvious interpretations on the scale of nations, wars, societies, cultures, families, and individuals. Igo is a wonderful microcosm for such human interaction and a useful analog for reflecting on the effects of meditation in retrospect.
 
-> Hence I know the value of non-action.
->
-> Teaching without words and work without doing
->
-> Are understood by very few.
+> ```Hence I know the value of non-action.
+
+Teaching without words and work without doing
+Are understood by very few.```
 
 As Vipassana is a moving meditation, there is "work" though the meditator is not "doing" anything. The lessons to be learned from Vipassana cannot be taught by language — or they would be already. Some of these lessons are non-paradoxical and can be captured in platitudes: "Those who are the hardest to love are the ones who need it most." and so forth. Such clichés do not convey the teaching.
 
