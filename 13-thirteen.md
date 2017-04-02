@@ -26,7 +26,7 @@ Accept disgrace willingly.
 Do not be concerned with loss or gain.
 ```
 
-The awareness of our own mental states caused by probing our own nervous system with direct attention tends to be acute, and not always pleasant. Everyone has both selfish and destructive thoughts and unless one is a perfect meditator (you aren't), attention will move between the thoughts and the bodily sensations which correspond to those thoughts. These thoughts are often "disgraceful".
+The awareness of our own mental states caused by probing our own nervous system with direct attention tends to be acute, and not always pleasant. Everyone has both selfish and destructive thoughts and unless one is a perfect meditator (we aren't), attention will move between the thoughts and the bodily sensations which correspond to those thoughts. These thoughts are often "disgraceful".
 
 ```
 Accept being unimportant.
@@ -52,10 +52,10 @@ Even an incomplete experience of bhanga will cause one to feel "oneness" with th
 Surrender yourself humbly; then you can be trusted to care for all things.
 ```
 
-"Trust" here is in some global sense. A partial experience of these truths (impermanence of the body known experientially and the resultant feeling of non-self) will make a person humble. Surrender/humility/trust are in this passage perhaps one and the same.
+"Trust" here is in some global sense. A partial experience of these truths (impermanence of the body known experientially and the resultant feeling of non-self) will make a person humble. This makes some sense, as we even experience such humility (albeit on a very small scale) watching the world news or listening to Carl Sagan. Surrender/humility/trust are in this passage perhaps one and the same. One who truly does not see herself as important is more likely to be trusted than someone who puts herself at the centre of the universe.
 
 ```
 Love the world as your own self; then you can truly care for all things.
 ```
 
-As one has a clearer vision of one's own impermanent reality, one becomes increasingly careful. Why this occurs is beyond me. This change occurs in very small steps but it would seem that with enough practice one will not differentiate between the outside world and the world inside one's own body (the "self") at all. At this point, maximum care will be given to every action.
+As one has a clearer vision of one's own impermanent reality, one becomes increasingly careful. Why this occurs is beyond me. This change progresses in very small steps but it would seem that with enough practice one will not differentiate between the outside world and the world inside one's own body (the "self") at all. At this point, by extrapolation, it seems maximum care would be given to every action.
